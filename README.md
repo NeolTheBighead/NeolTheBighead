@@ -1,1 +1,1 @@
-im a retar with big brain :flushed:
+★[47]★ keep yourself safe ★[47]★
